@@ -1,18 +1,14 @@
 
 <div align="center">
-  <a href="https://therobinwonder.straw.page"><img src="https://files.catbox.moe/8wtvar.png" width="300" height="auto" align="left"></img></a>
-<a href=""><img src="https://files.catbox.moe/7v2f9l.png" width="300" height="auto" align="auto"></img></a> <br>
+  <a href="https://catkori.straw.page/"><img src="https://files.catbox.moe/g2kq9f.png" width="350" height="auto" align="left"></img></a>
 
-$\color{#D6210D}{\textsf{ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ⠀⠀⠀}}$       $\color{#FFB029}{\textsf{eri⠀⠀(k)}}$ <br>
-$\color{#FFB029}{\textsf{18 yrs old  ೀ }}$       $\color{#275E00}{\textsf{he  ٠ ࣪⭑}}$ <br>
-$\color{#275E00}{\textsf{w2i whenever!!}}$  $\color{#F2F0E9}{\textsf{no need to be shy}}$ <br>
-$\color{#FFB029}{\textsf{i might take time to respond, but i always am free}}$ <br>
+__
 
-<a href=""><img src="https://files.catbox.moe/7v2f9l.png" width="300" height="auto" align="auto"></img></a> <br>
+  dni  ⟡  usual criteria  ;  i rarely ever hide, unless you are bothering me or any person i like
+still working on a new gh readme ;) check out my strawpage and send gimmicks if you feel like it
 
+click the catwoman image 
 
-
-$\color{#FFB029}{\textsf{click the jaybin to see my strawpage and if you feel like it, send me any gimmicks!}}$ <br>
 ![](https://komarev.com/ghpvc/?username=satyyr&label=:S&color=dc143c)
 
 </p>
