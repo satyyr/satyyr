@@ -4,8 +4,8 @@
 
 __
 
-  dni  ⟡  usual criteria  ;  i rarely ever hide, unless you are bothering me or any person i like
-still working on a new gh readme ;) check out my strawpage and send gimmicks if you feel like it
+ hi i am kori i am eighteen years old im autistic brazilian and i like hero stuff 
+ int whenever im kind of shy though
 
 click the catwoman image 
 
