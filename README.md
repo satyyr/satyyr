@@ -1,14 +1,7 @@
+hi my name is erik I am eighteen years old my prnouns r he him I use slurs I can reclaim and I come from Brazil
 
-<div align="center">
-  <a href="https://catkori.straw.page/"><img src="https://files.catbox.moe/g2kq9f.png" width="350" height="auto" align="left"></img></a>
+I am always free to interact btw even if I am a little shy or distant sometimes I am autistic and I lack a few emotions and struggle with empathy sometimes Sorry ! but I am not evil at all Im just a little weird  I think my mom mustve dropped me on my head when I was a kid or something  I Dont rlly doubt it
 
-__
+I dont rlly have a dni list tbh just dont annoy me and ur alright  I dont condone harassment and I dont partake in internet discourse unless I Rlly want to annoy somebody
 
- hi i am kori i am eighteen years old im autistic brazilian and i like hero stuff 
- int whenever im kind of shy though
-
-click the catwoman image 
-
-![](https://komarev.com/ghpvc/?username=satyyr&label=:S&color=dc143c)
-
-</p>
+I like having friends and laughing a lot  Why u aint accept my friend request😳😳😂 don't u wanna be My friend.. 👀👀
