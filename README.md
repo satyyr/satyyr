@@ -16,3 +16,6 @@ https://www.youtube.com/watch?v=SwrWm-IDPWQ 空夜coo:ya - 静焔 (Full Album, 2
 
 https://youtu.be/nqPoES9qZPQ?si=R1S78vrit6VecTRU  Halcali - Strawberry Chips (2003) FULL ALBUM
 
+https://www.youtube.com/watch?v=op6SoPrMLKI Spoochy - Spoochy (1999)
+
+
