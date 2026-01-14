@@ -11,6 +11,8 @@ I like having friends and laughing a lot  Why u aint accept my friend request�
 
 Listen to these Albums to be Reborn as a lotus flower 
 
-https://www.youtube.com/watch?v=SwrWm-IDPWQ
+https://www.youtube.com/watch?v=SwrWm-IDPWQ 空夜coo:ya - 静焔 (Full Album, 2005)
 
-https://youtu.be/nqPoES9qZPQ?si=R1S78vrit6VecTRU
+
+https://youtu.be/nqPoES9qZPQ?si=R1S78vrit6VecTRU  Halcali - Strawberry Chips (2003) FULL ALBUM
+
