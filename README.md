@@ -8,3 +8,9 @@ I am always free to interact btw even if I am a little shy or distant sometimes 
 I dont rlly have a dni list tbh just dont annoy me and ur alright  I dont condone harassment and I dont partake in internet discourse unless I Rlly want to annoy somebody
 
 I like having friends and laughing a lot  Why u aint accept my friend request😳😳😂 don't u wanna be My friend.. 👀👀
+
+Listen to these Albums to be Reborn as a lotus flower 
+
+https://www.youtube.com/watch?v=SwrWm-IDPWQ
+
+https://youtu.be/nqPoES9qZPQ?si=R1S78vrit6VecTRU
