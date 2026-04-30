@@ -1,4 +1,4 @@
-hi my name is erik I am eighteen years old my prnouns r he him I use slurs I can reclaim and I come from Brazil. I am very manly and also I am biromantic  Hit me up (LADIES ONly) 
+hi my name is erik I am eighteen years old my prnouns r he him I use slurs I can reclaim and I come from Brazil. I am very manly and also I am biromantic  DO NOT hit me up (i have a hgirlfriend and she beats me)
 
 excuse All the bullshit I am a Very uncomfortable person to have around
 
