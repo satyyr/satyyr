@@ -17,4 +17,4 @@ $\color{#D6210D}{\textsf{ㅤ ׅ ♡̸̴̢̣͘͜ ✚ ㅤ⠀⠀⠀}}$       $\colo
 i rarely hide or block, if you have any issues, please do talk to me, confront me about it so we can solve our issues !
 
 
-</p> <a href=""><img src="https://files.catbox.moe/5icy4y.png" width="350" height="auto" align="center"></img></a> <br>
+</p> <a href=""><img src="https://files.catbox.moe/5icy4y.png" width="275" height="auto" align="center"></img></a> <br>
