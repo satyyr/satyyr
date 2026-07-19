@@ -1,5 +1,23 @@
-if you have any issues with my behavior, speak to me directly instead of making it a much bigger issue than it needs to be, its beneficial for the both of us!!
 
-basic dni criteria; bigots r not welcome at all
+<div align="center">
+<img src="https://files.catbox.moe/mfd8so.png" width="360" height="auto" align="left"></img></a>
+<a href=""><img src="https://files.catbox.moe/6xhox4.png" width="600" height="auto" align="auto"></img></a> <br>
+<a href=""><img src="https://files.catbox.moe/r29dpj.png" width="100" height="auto" align="auto"></img></a> <br>
 
-i like talking and i like making new friends, i dont like people who revolve their entire lives around drama, if any of my friends have done something TRULY terrible, warning me would be good
+  
+$\color{#D6210D}{\textsf{ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ⠀⠀⠀}}$       $\color{#FFB029}{\textsf{𝖊𝖗𝖎⠀⠀(k)}}$ <br>
+
+$\color{#FFB029}{\textsf{18 yrs old  09;28ೀ }}$       $\color{#275E00}{\textsf{he  ٠ ࣪⭑}}$ <br>
+$\color{#275E00}{\textsf{w2i whenever!!}}$  $\color{#F2F0E9}{\textsf{no need to be shy}}$ <br>
+$\color{#FFB029}{\textsf{i might take time to respond, but i always am free}}$ <br> ✙✙✙    
+
+<a href=""><img src="https://files.catbox.moe/f8kul5.png" width="600" height="auto" align="auto"></img></a> <br>
+
+$\color{#D6210D}{\textsf{ㅤ ׅ ♡̸̴̢̣͘͜ ✚ ㅤ⠀⠀⠀}}$       $\color{#FFB029}{\textsf{basic dni criteria}}$ <br>
+i rarely hide or block, if you have any issues, please do talk to me, confront me about it so we can solve our issues !
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dsotomfr4ksvg3fy6dcxzri54y&cover_image=true&theme=default&show_offline=false&background_color=cd3f1b&interchange=false&profanity=false&hide_remaster=false&bar_color=f5bd47&bar_color_cover=false" width="100" height="auto">
+  </a>
+</p> <a href=""><img src="https://files.catbox.moe/5icy4y.png" width="500" height="auto" align="center"></img></a> <br>
