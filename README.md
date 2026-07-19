@@ -1,7 +1,7 @@
 
 <div align="center">
-<img src="https://files.catbox.moe/mfd8so.png" width="360" height="auto" align="left"></img></a>
-<a href=""><img src="https://files.catbox.moe/6xhox4.png" width="600" height="auto" align="auto"></img></a> <br>
+<img src="https://files.catbox.moe/mfd8so.png" width="260" height="auto" align="left"></img></a>
+<a href=""><img src="https://files.catbox.moe/6xhox4.png" width="500" height="auto" align="auto"></img></a> <br>
 <a href=""><img src="https://files.catbox.moe/r29dpj.png" width="100" height="auto" align="auto"></img></a> <br>
 
   
@@ -16,8 +16,5 @@ $\color{#FFB029}{\textsf{i might take time to respond, but i always am free}}$ <
 $\color{#D6210D}{\textsf{ㅤ ׅ ♡̸̴̢̣͘͜ ✚ ㅤ⠀⠀⠀}}$       $\color{#FFB029}{\textsf{basic dni criteria}}$ <br>
 i rarely hide or block, if you have any issues, please do talk to me, confront me about it so we can solve our issues !
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dsotomfr4ksvg3fy6dcxzri54y&cover_image=true&theme=default&show_offline=false&background_color=cd3f1b&interchange=false&profanity=false&hide_remaster=false&bar_color=f5bd47&bar_color_cover=false" width="100" height="auto">
-  </a>
-</p> <a href=""><img src="https://files.catbox.moe/5icy4y.png" width="500" height="auto" align="center"></img></a> <br>
+
+</p> <a href=""><img src="https://files.catbox.moe/5icy4y.png" width="350" height="auto" align="center"></img></a> <br>
