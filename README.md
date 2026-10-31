@@ -1,10 +1,40 @@
+<br>
+<p align="center">
+   <div align="center">
+<p>
+<img src="https://files.catbox.moe/qcv6f6.jpg" width="500"  
+</p>
+  
+  <table>
+    <tr>
+      <td>
+     <p align="center">
+       <details>
+  <summary> $$ {\color{#8A0000}\textsf{✦}} $$ </summary>
+         
+19 yr old lesbian horse               
+  no pronouns. refer to me however you wish              
+  isfp 5w4 so 594 chaotic neu mel-phleg
+  
 
-<div align="center">
-i am a 19 year old larping as a neet online
-
-  major depressive disorder and autism 
-
-  i act abnormally and am generally quite eccentric. do tell me if i make you uncomfortable and i shall assuage my weird behaviour
-
-isfp 5w4 sp 594 chaotic neu mel-phleg do not ask me about typology i know nothing of it
-
+   </p>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+      </td>
+    </tr>
+  </table>
+         </details>
+  <table>
+    <tr>
+      <td>
+     <p align="center">
+       <details>
+  <summary> $$ {\color{#8A0000}\textsf{dni}} $$ </summary>
+         
+genshin and jjk dniuid              
+diehard proshippers dni        
+tcc edlgelords dni                                  
+  </p>⠀ 
+  <img src="https://files.catbox.moe/62zpql.jpg" width="70" align="center"⠀⠀⠀⠀⠀⠀
+      </td>
+    </tr>
+  </table>
+         </details>
