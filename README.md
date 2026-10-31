@@ -10,7 +10,7 @@
       <td>
      <p align="center">
        <details>
-  <summary> $$ {\color{#8A0000}\textsf{✦}} $$ </summary>
+  <summary> ✦ </summary>
          
 19 yr old lesbian horse               
   no pronouns. refer to me however you wish              
@@ -27,7 +27,7 @@
       <td>
      <p align="center">
        <details>
-  <summary> $$ {\color{#8A0000}\textsf{dni}} $$ </summary>
+  <summary>  dni </summary>
          
 genshin and jjk dniuid              
 diehard proshippers dni        
